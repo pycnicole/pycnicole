@@ -17,7 +17,3 @@ I'm currently a Junior at National Yang Ming Chiao Tung University (NYCU) studyi
 
 ### ⚡ Outside of Coding
 I love taking on leadership roles and organizing events! I serve as the President of the Yoga Club and the Head of PR & Art Design for my department's student association. 
-
-### 📫 Let's Connect!
-- **LinkedIn:** 
-- **Email:** 
